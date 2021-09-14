@@ -1,3 +1,5 @@
+# Chapter 1
+
 It was getting late. The grandkids, who only an hour ago were running laps around the coffee table were now quiet. Three year-old Maddie, still grasping the ear of her favourite stuffed bunny, was fast asleep on the living room couch---her blonde pigtails having barely survived the evening. Her older brother Michael, abandoning his puzzle, stood and turned to his mother with outstretched arms. She obliged, as he let out a yawn so big, nothing in the world could have distracted him from his task in that moment.
 
 "I think it's time we called it a night," said Judy, eyeing her husband Ron as Michael snuggled in her lap.
